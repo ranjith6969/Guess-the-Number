@@ -1,1 +1,1 @@
-Demo of the game : https://jithu2590gtn.ccbp.tech/
+Demo of the game : http://ranjith6969.ccbp.tech
